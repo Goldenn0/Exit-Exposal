@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/ffef4c47-338f-44dc-93e5-f66357a6ef4c)# Exit-Exposal
+# Exit-Exposal
 ## This is a document about Swearts/Envy. He is a big skid and one of the mosted hated ppl in ogfn community
 # DO NOT JOIN PROJECT EXIT!!!
 
