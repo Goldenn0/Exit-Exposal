@@ -18,3 +18,9 @@
 
 ## Here is Swearts saying that the launcher he bought from us is his
 ![image](https://github.com/user-attachments/assets/c1adbafc-5a2a-452f-9456-036061c426d0)
+
+## Here is Swearts spreading lies about Goldenn and Zyxx's Project (Legacy)
+![image](https://github.com/user-attachments/assets/d33589f7-f4d3-409a-a485-f5b0de5c1830)
+## Note: Swearts is a POS
+
+### If you have any information on Swearts that could be added here, reach out to me on discord: goldenn.dev.
