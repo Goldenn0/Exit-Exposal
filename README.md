@@ -1,6 +1,6 @@
 # Exit-Exposal
 ## This is a document about Swearts/Envy. He is a big skid and one of the mosted hated ppl in ogfn community
-# DO NOT JOIN PROJECT EXIT!!!
+## DO NOT JOIN PROJECT EXIT!!!
 
 ## Swearts bought our launcher and gave half of the money, then he said he would pay the other half tommorow
 ## Well look what we have here...
