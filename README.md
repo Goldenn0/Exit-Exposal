@@ -1,6 +1,6 @@
 # Exit-Exposal
 ## This is a document about Swearts/Envy. He is a big skid and one of the mosted hated ppl in ogfn community
-## DO NOT JOIN PROJECT EXIT!!!
+## Thank you Zyxx, Super Sigma, Kovryn, and Razer for helping contribute to this...
 
 ## Swearts bought our launcher and gave half of the money, then he said he would pay the other half tommorow
 ## Well look what we have here...
@@ -22,5 +22,8 @@
 ## Here is Swearts spreading lies about Goldenn and Zyxx's Project (Legacy)
 ![image](https://github.com/user-attachments/assets/d33589f7-f4d3-409a-a485-f5b0de5c1830)
 ## Note: Swearts is a POS
+
+## Here is Swearts using Eon Launch code for his old launcher
+![image](https://github.com/user-attachments/assets/d3576240-6a0e-4f26-b051-0c30b5ce2702)
 
 ### If you have any information on Swearts that could be added here, reach out to me on discord: goldenn.dev.
